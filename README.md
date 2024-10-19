@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil :vitorinhaaaaa
+### Boas vindas ao meu perfil :)
 
 Meu nome é Vitória de Camargo Pacheco
 
